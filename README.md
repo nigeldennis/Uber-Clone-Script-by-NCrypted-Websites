@@ -1,0 +1,2 @@
+# Uber-Clone-Script-by-NCrypted-Websites
+Uber Clone Script is Multi-feaured Taxi Booking Script that helps you for start your own taxi business or sharing economy business with mobile app similar to Uber, Lyft, Didi, etc. NCrypted Websites Uber Clone Script is packed with lots of fundamentals to give an exceptionally stable establishment to your Taxi Booking Android App. Uber Clone Script can also be customized at any time as per your business needs. You can build a resourceful, desire Android App to expand your business and generate revenue.
